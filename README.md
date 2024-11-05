@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abhi91612
 - 👀 I’m interested in developing software
-- 🌱 I’m currently college student
+- 🌱 I’m currently final year college student
 - 💞️ I’m looking to collaborate in software industry
 - 📫 How to reach me by insta id= Abhi_shek_01
 
